@@ -1,1 +1,1 @@
-# bolumsonucalısmaso
+# bolumsonucalısması
