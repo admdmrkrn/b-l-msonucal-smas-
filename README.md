@@ -1,1 +1,1 @@
-# b-l-msonucal-smas-
+# bolumsonucalısmaso
